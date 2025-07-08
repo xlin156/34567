@@ -24,4 +24,5 @@
 
 完全免费，无会员
 平台完全免费，无需注册、无需下载任何插件，直接点击链接就能观看你想看的所有日本AV资源。我们坚决杜绝任何形式的隐性收费，所有视频都可以免费观看。
-<span style="display:none;">[Canonical link](）</span>
+
+<span style="display:none;">[Canonical link](https://github.com/xlin156/34567 ）</span>
